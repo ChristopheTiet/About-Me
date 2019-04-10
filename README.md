@@ -1,2 +1,2 @@
-# About-Me
-Tout ce que vous voulez savoir sur moi
+N'hésitez pas à visiter mon medium!
+https://medium.com/christophetie
