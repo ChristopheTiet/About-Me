@@ -1,2 +1,2 @@
 N'hésitez pas à visiter mon medium!
-https://medium.com/christophetie
+https://medium.com/christophetiet
